@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.\
+Perkenalkan nama saya **Fioreza Radhin Naufal**.
 
 Saya seorang **Mahasiswa** yang memiliki minat besar terhadap bisnis dan teknologi
 
